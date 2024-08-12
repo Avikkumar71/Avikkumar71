@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **ML,Bockchain**
 
-- 📫 How to reach me **ak5589@srmist.edu.in**
+- 📫 How to reach me **avikkumar7119@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
